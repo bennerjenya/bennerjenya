@@ -1,4 +1,4 @@
-# Hi, my name is Eugene and i'm Middle Frontend-developer with more than 2 years of commercial experience
+# Hi, my name is Eugene and i'm Middle Frontend-developer with more than 3 years of commercial experience
 
 ### Languages
 
